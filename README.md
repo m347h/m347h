@@ -11,8 +11,7 @@
 - Looking for a fall internship 🌻
 - Let's chat! reach me @ mayhan9797@gmail.com ‎😃 
 - Fun fact: I like exploring product designs and Algorithms 
-- i love: good eats and fun travels ❤️
-
+ 
  
 
 <!--
